@@ -12,7 +12,7 @@ My Interests
 - Open-Source Software and Community Development
 
 
-- Email: soursaltysugar@gmail.com
+Email: soursaltysugar@gmail.com
 
 Let's Connect and Create!
 
